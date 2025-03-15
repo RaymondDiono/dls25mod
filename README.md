@@ -1,5 +1,6 @@
 # dls25 mod
 https://www.youtube.com/watch?v=GwyG7U39TVo
+
 CLICK AND GET TUTORIAL!
 For fans of the popular mobile game Dream League Soccer (DLS), getting free coins and diamonds is always a thrilling prospect. DLS 25, the latest installment in the series, offers an exciting experience with its updated features and gameplay. However, acquiring in-game currency can be a daunting task, especially for those who are new to the game or don't want to spend real money. Fortunately, there are several ways to get free coins and diamonds in DLS 25, allowing players to enhance their gaming experience without breaking the bank.
 
